@@ -13,7 +13,7 @@ Elissa / Elyssa
 
 Eleanor / Ele / Elean
 
-Circus Baby / Scrapbaby / CB
+Circus Baby / CB / Ennard / Scrapbaby
 
 Dee / D
 
