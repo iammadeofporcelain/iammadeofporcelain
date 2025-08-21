@@ -14,9 +14,6 @@ Eleanor / Ele / Elean
 Dee / D
 
 ## Pronouns
-She
-Her
-Zi
-Zir
+She / Her / Zi / Zir
 
 Check my links for other information that's not here <3
