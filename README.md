@@ -11,6 +11,8 @@ Elissa / Elyssa
 
 Eleanor / Ele / Elean
 
+Circus Baby / Scrapbaby / CB
+
 Dee / D
 
 ## Pronouns
