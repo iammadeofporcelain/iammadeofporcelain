@@ -1,17 +1,12 @@
 # Elizabeth Afton
 
 ## Names
-Kirin
-Lissa
-Lyssa
-Elizabeth
-Liz
-Lizzy
-Beth
-Bethy
-Elissa
-Elyssa
-Eleanor
+Kirin / Kiri
+Lissa / Lyssa
+Elizabeth / Liz / Lizzy / Beth / Bethy
+Elissa / Elyssa
+Eleanor / Ele / Elean
+Dee / D
 
 ## Pronouns
 She
