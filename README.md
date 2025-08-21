@@ -1,16 +1,22 @@
-## Hi there 👋
+# Elizabeth Afton
 
-<!--
-**iammadeofporcelain/iammadeofporcelain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Names
+Kirin
+Lissa
+Lyssa
+Elizabeth
+Liz
+Lizzy
+Beth
+Bethy
+Elissa
+Elyssa
+Eleanor
 
-Here are some ideas to get you started:
+## Pronouns
+She
+Her
+Zi
+Zir
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Check my links for other information that's not here <3
