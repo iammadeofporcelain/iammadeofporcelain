@@ -1,5 +1,7 @@
 # Elizabeth Afton
 
+![598614501](https://github.com/user-attachments/assets/d82d7126-5e37-4b2d-87fb-e77bdcdd00d4)
+
 ## Names
 Kirin / Kiri
 
