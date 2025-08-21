@@ -1,6 +1,6 @@
 # Elizabeth Afton
 
-![Eleanor and Elizabeth drinking tea](https://pin.it/4cMLlvmWI)
+https://share.google/images/Pzo13X8OG2lv6i5DJ
 
 ## Names
 Kirin / Kiri
