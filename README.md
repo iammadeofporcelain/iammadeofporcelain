@@ -21,4 +21,7 @@ Dee / D
 ## Pronouns
 She / Her / Zi / Zir
 
+—
+im REEL rest r fayekes.!!!!!! >:( /j
+
 Check my links for other information that's not here <3
