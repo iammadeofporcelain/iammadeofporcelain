@@ -18,6 +18,8 @@ Circus Baby / CB / Ennard / Scrapbaby
 
 Dee / D
 
+ 🟢 is on interact always ; 🌙 = interact but i might answer late ; ⛔ = busy & wont answer
+
 ## Pronouns
 She / Her / Zi / Zir
 
