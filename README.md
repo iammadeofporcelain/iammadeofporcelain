@@ -16,7 +16,6 @@ Eleanor / Ele / Elean
 
 Circus Baby / CB / Ennard / Scrapbaby
 
-Dee / D
 
  🟢 = interact always ; 🌙 = interact but i might answer late ; ⛔ = busy & wont answer
 
